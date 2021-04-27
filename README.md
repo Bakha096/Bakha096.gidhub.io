@@ -1,2 +1,2 @@
-# Bakha096.gidhub.io
+# bakha096.gidhub.io
 Мой первый опубликованный сайт
